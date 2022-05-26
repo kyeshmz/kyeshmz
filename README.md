@@ -1,1 +1,1 @@
-![Midnight Gospel Face by Clancy](https://github.com/kyeshmz/kyeshmz/blob/master/midnight-gospel.gif)
+![Midnight Gospel Face by Clancy](https://github.com/kyeshmz/kyeshmz/blob/main/midnight-gospel.gif)
